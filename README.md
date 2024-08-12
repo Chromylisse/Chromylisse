@@ -3,6 +3,7 @@
 
 ![Untitled12_20240812000427](https://github.com/user-attachments/assets/726c10c0-ffbe-4366-a1a1-c056a1c33a86)
 My name is Caspar, I'm a 16 year old trans man only refer to me with He/him. I'm autistic and I have ADHD so please be patient with me if interacting, I have a hard time understanding most things!! My special interests are Fallout, Phantom of the Opera, and Final Fantasy XV. I'm currently hyperfixated on Nagito Komaeda very badly if you enjoy nagito as well I'm posting him a lot on my linked tumblr!!! I do sometimes get a bit gatekeepy about characters I really like but most of the time I'm not so feel free to int if you like the same characters as me^^
+
 ![IMG_6946](https://github.com/user-attachments/assets/1d1fa4f0-e639-4e1b-b902-008ead2c5121)
 
 ***INT AND SOCIALS BELOW!!!***
@@ -21,7 +22,7 @@ IDV isn't social but: ChromYlisse (1st nagito merc btw/j)
  Tiktok: ChromyIisse
  Discord: Chromylisse
 
-![IMG_6941](https://github.com/user-attachments/assets/098e6f97-ee08-488d-b2a0-c3170a5d2c9c) ![IMG_6940](https://github.com/user-attachments/assets/754fba3f-e5ae-46fd-88c7-3ca90e313a84)
+![IMG_6941](https://github.com/user-attachments/assets/098e6f97-ee08-488d-b2a0-c3170a5d2c9c) 
 
 ![tumblr_643daaa291b8404116554f1b21847a5a_df59f67b_1280](https://github.com/user-attachments/assets/312f9cef-9ba2-4142-a782-39f7a4917551)
 
