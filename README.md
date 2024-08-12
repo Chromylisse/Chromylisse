@@ -8,7 +8,9 @@ My name is Caspar, I'm a 16 year old trans man only refer to me with He/him. I'm
 
 ***INT AND SOCIALS BELOW!!!***
 ![Untitled15_20240812013629](https://github.com/user-attachments/assets/cc6e1004-f51a-4091-9177-122029358f76)
-![Untitled15_20240812015854](https://github.com/user-attachments/assets/95f17f80-79f6-4d3a-974c-766beae1fa1b)
+***PLEASE INTERACT***
+
+
 ![IMG_6944](https://github.com/user-attachments/assets/0193c1be-fc4f-47c0-9422-bb052e68b388)Video Games: Fallout series, Resident Evil series, Borderlands series, Bioshock series, FFXV, FFXVI, Splatoon, Fire Emblem (Three Houses and Awakening), The Last of Us, Genshin Impact, Honkai: Star Rail, Identity V, Danganronpa, Bloodborne, Sally Face, Pokemon, The Legend of Zelda, Persona 5, Phasmophobia + more that I cant think of!
 
 Shows/Movies: Fallout TV show, The Phantom of the Opera, Izombie, Bungou Stray Dogs, My Hero Academia, Studio Ghibli movies, HunterxHunter, Death Note, Black Butler, Saw movies, Doctor Sleep, Sweet Tooth + more tba...
