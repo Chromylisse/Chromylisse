@@ -21,7 +21,7 @@ Character favs: Nagito Komaeda, Prompto Argentum, Chrom, Céline, Helena Adams, 
 
 **SOCIALS!!!**
 IDV isn't social but: ChromYlisse (1st nagito merc btw/j) 
- Tiktok: ChromyIisse
+ Tiktok: Chromyiisse
  Discord: Chromylisse
 
 ![IMG_6941](https://github.com/user-attachments/assets/098e6f97-ee08-488d-b2a0-c3170a5d2c9c) 
