@@ -13,7 +13,7 @@ My name is Caspar, I'm a 16 year old trans man only refer to me with He/him. I'm
 
 ![IMG_6944](https://github.com/user-attachments/assets/0193c1be-fc4f-47c0-9422-bb052e68b388)Video Games: Fallout series, Resident Evil series, Borderlands series, Bioshock series, FFXV, FFXVI, Splatoon, Fire Emblem (Three Houses and Awakening), The Last of Us, Genshin Impact, Honkai: Star Rail, Identity V, Danganronpa, Bloodborne, Sally Face, Pokemon, The Legend of Zelda, Persona 5, Phasmophobia + more that I cant think of!
 
-Shows/Movies: Fallout TV show, The Phantom of the Opera, Izombie, Bungou Stray Dogs, My Hero Academia, Studio Ghibli movies, HunterxHunter, Death Note, Black Butler, Saw movies, Doctor Sleep, Sweet Tooth + more tba...
+Shows/Movies: Fallout TV show, The Phantom of the Opera, Izombie, Bungou Stray Dogs, My Hero Academia, Studio Ghibli movies, HunterxHunter, Death Note, Black Butler, Saw movies, Doctor Sleep, Sweet Tooth, A Series of Unfortunate Events + more tba...
 
 Artists: Babymetal, Set it Off, Mitski, Flyleaf, Unlucky Morpheus, Rammstein, JT music, Electric Callboy, and The Cranberries^^![IMG_6945](https://github.com/user-attachments/assets/3554f127-b154-4b63-bdc9-eba934e74da9)
 
