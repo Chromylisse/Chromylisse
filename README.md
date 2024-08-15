@@ -15,7 +15,7 @@ My name is Caspar, I'm a 16 year old trans man only refer to me with He/him. I'm
 
 Shows/Movies: Fallout TV show, The Phantom of the Opera, Izombie, Bungou Stray Dogs, My Hero Academia, Studio Ghibli movies, HunterxHunter, Death Note, Black Butler, Saw movies, Doctor Sleep, Sweet Tooth, A Series of Unfortunate Events + more tba...
 
-Artists: Babymetal, Set it Off, Mitski, Flyleaf, Unlucky Morpheus, Rammstein, JT music, Electric Callboy, and The Cranberries^^![IMG_6945](https://github.com/user-attachments/assets/3554f127-b154-4b63-bdc9-eba934e74da9)
+Artists: The Ink Spots, Frank Sinatra, Billie Holiday, Ella Fitzgerald, Babymetal, Set it Off, Mitski, Flyleaf, Unlucky Morpheus, Rammstein, JT music, Electric Callboy, and The Cranberries^^![IMG_6945](https://github.com/user-attachments/assets/3554f127-b154-4b63-bdc9-eba934e74da9)
 
 Character favs: Nagito Komaeda, Prompto Argentum, Chrom, Céline, Helena Adams, Emil Mesmer, Demi Bourbon, Michiko, Ryuji Sakamoto, Wriothesley, Alhaitham, Arataki Itto, Lynette, Jing Yuan, Boothill, Gin Akutagawa, Chuuya Nakahara, Doppo Kunikida, Mirio Togata, Zelda, Nick Valentine, Kusanagi Nene, and.. Illumi.. Zoldyck... ahaha...
 
