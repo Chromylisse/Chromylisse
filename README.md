@@ -27,6 +27,6 @@ IDV isn't social but: ChromYlisse (1st nagito merc btw/j)
  Discord: Chromylisse
 
 ![IMG_6941](https://github.com/user-attachments/assets/098e6f97-ee08-488d-b2a0-c3170a5d2c9c) 
-
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Chromylisse)
 ![tumblr_643daaa291b8404116554f1b21847a5a_df59f67b_1280](https://github.com/user-attachments/assets/312f9cef-9ba2-4142-a782-39f7a4917551)
 
