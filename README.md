@@ -4,6 +4,8 @@
 ![Untitled12_20240812000427](https://github.com/user-attachments/assets/726c10c0-ffbe-4366-a1a1-c056a1c33a86)
 My name is Caspar, I'm a 16 year old trans man only refer to me with He/him. I'm autistic and I have ADHD so please be patient with me if interacting, I have a hard time understanding most things!! Keep in mind i have a HUSBAND so i will probably get very uncomfortable if u make sexual remarks about me. My special interests are Fallout, Phantom of the Opera, and Final Fantasy XV, I also really really like Prompto Argentum but hes not as much a special interest anymore. I'm currently hyperfixated on Nagito Komaeda very badly if you enjoy nagito as well I'm posting him a lot on my linked tumblr!!! I do sometimes get a bit gatekeepy about characters I really like but most of the time I'm not so feel free to int if you like the same characters as me (im also married)^^
 
+//never thought id have to say this but since its near bsd area dni if u sit at the proshipper tree??? yall r fucking disgusting especially the one who draws rape and is an open pedophile i hope i got u banned❤️
+
 ![IMG_6946](https://github.com/user-attachments/assets/1d1fa4f0-e639-4e1b-b902-008ead2c5121)
 
 ***INT AND SOCIALS BELOW!!!***
