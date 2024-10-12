@@ -6,7 +6,7 @@ My name is Caspar, I'm a 16 year old trans man only refer to me with He/him. I'm
 
 adding onto some things please dont fucking say ur gonna kill me 
 
-//never thought id have to say this but since its near bsd area dni if u sit at the proshipper tree??? yall r fucking disgusting especially the one who draws rape and is an open pedophile i hope i got u banned❤️
+//never thought id have to say this but since its near bsd area dni if u sit at the proshipper tree??? also dni ferid defenders pwease:heart: 
 
 ![IMG_6946](https://github.com/user-attachments/assets/1d1fa4f0-e639-4e1b-b902-008ead2c5121)
 
