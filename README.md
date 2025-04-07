@@ -26,7 +26,7 @@ Artists: The Ink Spots, Frank Sinatra, Billie Holiday, Ella Fitzgerald, Babymeta
 Character favs: Nagito Komaeda, Prompto Argentum, Chrom, Céline, Helena Adams, Emil Mesmer, Demi Bourbon, Michiko, Ryuji Sakamoto, Wriothesley, Alhaitham, Arataki Itto, Lynette, Jing Yuan, Boothill, Gin Akutagawa, Chuuya Nakahara, Doppo Kunikida, Mirio Togata, Zelda, Nick Valentine, Kusanagi Nene, Yuichiro Hyakuya, Mikaela Hyakuya, and.. Illumi.. Zoldyck... ahaha...
 
 **SOCIALS!!!**
-IDV isn't social but: ChromYlisse (1st nagito merc btw/j) 
+IDV isn't social but: ChromYlisse (A badge Naiad btw bragging) 
  Tiktok: Chromyiisse
  Discord: Chromylisse
 
