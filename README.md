@@ -1,4 +1,5 @@
-<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/cd66bee1-ebdf-4513-8352-c8f69d4bb4ae" />
+<img width="2048" height="764" alt="image" src="https://github.com/user-attachments/assets/5872db19-9c8a-4279-9cb0-48ac53c1ec40" />
+
 
 i poo my pant
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/5dc0c34f-cb12-4e0f-8bd1-9a87af24f34a" />
