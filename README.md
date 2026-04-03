@@ -2,7 +2,7 @@
 
 
 
-i poo my pant
+adding some cute things i like to get a sense of who i am:3
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/5dc0c34f-cb12-4e0f-8bd1-9a87af24f34a" />
 <img width="100" height="62" alt="image" src="https://github.com/user-attachments/assets/2ad4f64a-ffcc-475c-b406-a761741c54d7" />
 
