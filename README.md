@@ -8,6 +8,7 @@
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/7f16eaad-1a01-43f2-9cca-51b501cfd27e" />
 
 <img width="100" height="62" alt="image" src="https://github.com/user-attachments/assets/2ad4f64a-ffcc-475c-b406-a761741c54d7" />
+https://files.catbox.moe/qkz7r8.gif
 
 
 adding some cute things i like to get a sense of who i am:3
