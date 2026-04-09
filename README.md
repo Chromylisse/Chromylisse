@@ -12,7 +12,12 @@ Hello! I am an 18 year old trans male who plans on going into mortuary science. 
 
 
 
-<img width="500" height="45" alt="image" src="https://github.com/user-attachments/assets/cbe29d1b-39cf-46dd-873f-aeb9b62c4920" />
+<img width="800" height="30" alt="image" src="https://github.com/user-attachments/assets/a9a7ade2-6f3c-4226-80d5-4ddc0760b3ff" />
+
+
+
+
+
 
 
 
@@ -69,7 +74,8 @@ Hello! I am an 18 year old trans male who plans on going into mortuary science. 
 
 
 
-<img width="500" height="45" alt="image" src="https://github.com/user-attachments/assets/945cff63-8c4f-4107-b6d1-36642dbb6163" />
+<img width="800" height="30" alt="image" src="https://github.com/user-attachments/assets/82a907b9-48fc-4736-8219-c360d14f7af4" />
+
 
 
 
@@ -85,7 +91,9 @@ Hello! I am an 18 year old trans male who plans on going into mortuary science. 
 
 
 
-<img width="500" height="45" alt="image" src="https://github.com/user-attachments/assets/75572da8-17bb-4ba0-ad31-f8a41281c0d9" />
+<img width="800" height="30" alt="image" src="https://github.com/user-attachments/assets/6034550a-3d34-457d-8d70-dcf97cf6531a" />
+
+
 
 
 <img width="100" height="50" alt="image" src="https://github.com/user-attachments/assets/5ce42731-7e5a-4366-87e4-9edcb4f8cae6" /><img width="100" height="50" alt="image" src="https://github.com/user-attachments/assets/fe3a2b60-6ef7-49bf-bb10-ab54c094079c" /><img width="50" height="37" alt="image" src="https://github.com/user-attachments/assets/94952bf9-b86a-40ce-bb97-e9b917f7fcfe" /><img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/19cd7965-1a63-43f2-8446-3abb39bd756b" />
