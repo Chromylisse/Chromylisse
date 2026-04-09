@@ -75,6 +75,8 @@ Hello! I am an 18 year old trans male who plans on going into mortuary science. 
 
 
 
+
+
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/b8fd13ea-d348-4b3d-87d9-dd06ab4e1ea2" />
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/7f16eaad-1a01-43f2-9cca-51b501cfd27e" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/2c2d686f-f859-4e66-adbe-dda69be8befa" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/fbbf7c29-a71d-40a7-8b3c-286aaf406139" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/3ab2765b-45a3-4250-91d2-c589fee7540c" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/817e9585-75d9-4d30-a806-8e43ff66b83a" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/e944f4b2-d8bc-49b9-9157-c0eed5487a90" />
 
